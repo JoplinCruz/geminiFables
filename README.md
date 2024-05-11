@@ -30,3 +30,9 @@ Ideal para momentos de convívio familiar, principalmente quando a imaginação 
 
 ---
 
+Sinceros agradecimentos à Alura e ao Google pelo grande apoio dado à todos nós, conhecimento é tesouro indelével.
+
+---
+
+
+
